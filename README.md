@@ -1,4 +1,3 @@
 #DevCon
 hahahahahaha
 nino
-dota
